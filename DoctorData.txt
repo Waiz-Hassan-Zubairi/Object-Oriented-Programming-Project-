@@ -1,0 +1,3 @@
+ali,hassan,0300000000,bahawlpur,29th,Waizhassan@3,Waizhassan@3,Doctor,1234566666666,5,orthooo,medical,5,8,bhawalpur
+Waizz,Zubairi,03008665342,bahawalpur,29oct,WAIZZubairi@3,WAIZZubairi@3,Doctor,1234567777777,5,ortho,medical,5,8,bahawalpur
+ahmed,raza,03201713676,bahawalpur,29th,Waizhassan@3,Waizhassan@3,Doctor,1231234532123,5,dermo,Medical,4,8,,2000,1500
