@@ -13,3 +13,7 @@ BAITAY TUMHAIN FAK NAI PARAY GA FIVER MERA ACCOUNT BAN KARAY GIIIII
 
 are smajh gy abhai main   main yhi to likha maan gye guru usse kya pata chelega
 
+
+thhek i will ping u  main us din bhi yhi bo; rha tha meet me likh dete no wha kaise pta chalta 
+
+
